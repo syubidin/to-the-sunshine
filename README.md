@@ -5,4 +5,4 @@ Aku gak terlalu jago dalam menyusun kata
 Prosaku pun tak terlalu indah
 Tapi, perasaan aku ke kamu itu beneran nyata.
 
-- Syuby
+-Syuby
